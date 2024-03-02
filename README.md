@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Chashmankhan27
+- 👀 I’m interested in Graphic Design/UIUX Design 
+- 🌱 I’m currently learning Web & App Development
+- 💞️ I’m looking to collaborate on UIUX Design | Digital Marketing | Grapgic Desginer
+- 📫 How to reach me cmkhan2019@gmail.com
+- 😄 Pronouns: She
+- ⚡ Fun fact: ...
